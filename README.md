@@ -1,2 +1,2 @@
-### Hey, there. Check out my sutff :)
+### Hey, there. Check out my stuff :)
 
